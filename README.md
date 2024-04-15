@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any projects!
 - 📫 How to reach me .. ashtonmobley01@gma.com
 - 😄 Pronouns: her/she
-- ⚡ Fun fact: I love to travel
+- ⚡ Fun fact: I love to travel and have a few pictures I've taken im my portfolio
 
 <!---
 ashtonm01/ashtonm01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
